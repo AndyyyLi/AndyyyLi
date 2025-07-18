@@ -1,4 +1,4 @@
-Hello! I'm Andy, an undergraduate student at UBC studying Computer Science and Mathematics.
+Hello! I'm Andy, a UBC undergraduate in Computer Science and Mathematics, and a current graduate student in UBC's Master of Management Dual Degree program.
 
 I'm hoping to go into the video game industry, but I'm gradually opening my options as long as I enjoy what I do.
 
